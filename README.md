@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## How do you fix a broken pizza? With tomato paste.
