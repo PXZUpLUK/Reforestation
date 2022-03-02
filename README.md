@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## How do you find Will Smith in the snow?  Look for fresh prints.
