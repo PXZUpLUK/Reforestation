@@ -1,1 +1,2 @@
-## How do you make Lady Gaga cry? Poker face. 
+## What is red and smells like blue paint?
+## Red paint!
