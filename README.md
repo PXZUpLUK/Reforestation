@@ -1,1 +1,1 @@
-## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
