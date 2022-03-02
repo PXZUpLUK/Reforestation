@@ -1,1 +1,1 @@
-## What do you call a fish with no eyes? A fsh.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
