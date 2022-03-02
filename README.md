@@ -1,1 +1,1 @@
-## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
+## What's the best thing about elevator jokes? They work on so many levels.
