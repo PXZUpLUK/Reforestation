@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
