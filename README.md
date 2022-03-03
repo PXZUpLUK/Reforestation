@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
