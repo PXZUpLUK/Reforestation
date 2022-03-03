@@ -1,1 +1,1 @@
-## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
