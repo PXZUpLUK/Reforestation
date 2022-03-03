@@ -1,1 +1,1 @@
-## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
+## This morning I was wondering where the sun was, but then it dawned on me.
