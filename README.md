@@ -1,1 +1,1 @@
-## This morning I was wondering where the sun was, but then it dawned on me.
+## Why can't a bicycle stand on its own? It's two-tired.
