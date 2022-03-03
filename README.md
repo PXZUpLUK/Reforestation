@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
