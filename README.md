@@ -1,1 +1,1 @@
-## Want to hear my pizza joke? Never mind, it's too cheesy.
+## What did the ocean say to the shore? Nothing, it just waved.
