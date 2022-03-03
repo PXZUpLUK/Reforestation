@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## It doesn't matter how much you push the envelope. It will still be stationary.
