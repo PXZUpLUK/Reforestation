@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
