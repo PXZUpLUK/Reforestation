@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
