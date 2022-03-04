@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
