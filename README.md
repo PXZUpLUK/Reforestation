@@ -1,1 +1,1 @@
-## I couldn't figure out how the seat belt worked. Then it just clicked.
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
