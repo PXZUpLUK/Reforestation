@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## I used to be addicted to the hokey pokey, but I turned myself around.
