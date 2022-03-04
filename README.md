@@ -1,1 +1,1 @@
-## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
