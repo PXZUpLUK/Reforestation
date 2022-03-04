@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## What did one snowman say to the other snow man? Do you smell carrot?
