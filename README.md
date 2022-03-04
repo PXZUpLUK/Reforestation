@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## What did Romans use to cut pizza before the rolling cutter was invented? Lil Caesars
