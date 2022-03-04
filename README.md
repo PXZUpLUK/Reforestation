@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## My cat was just sick on the carpet, I don’t think it’s feline well.
