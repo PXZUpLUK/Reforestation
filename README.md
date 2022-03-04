@@ -1,1 +1,1 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
