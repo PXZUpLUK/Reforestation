@@ -1,1 +1,1 @@
-## Why was the robot angry? Because someone kept pressing his buttons!
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
