@@ -1,1 +1,1 @@
-## What did the grape do when he got stepped on? He let out a little wine.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
