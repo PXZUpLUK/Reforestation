@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
