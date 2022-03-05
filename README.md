@@ -1,1 +1,1 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
