@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
