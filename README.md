@@ -1,1 +1,1 @@
-## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
