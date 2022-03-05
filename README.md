@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
