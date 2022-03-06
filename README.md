@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## Have you heard about the film "Constipation", you probably haven't because it's not out yet.
