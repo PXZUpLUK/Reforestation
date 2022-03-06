@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## What does a pirate pay for his corn? A buccaneer!
