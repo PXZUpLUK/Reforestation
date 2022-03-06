@@ -1,1 +1,2 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## What is red and smells like blue paint?
+## Red paint!
