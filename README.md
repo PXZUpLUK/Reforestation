@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## I used to be addicted to the hokey pokey, but I turned myself around.
