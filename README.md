@@ -1,1 +1,1 @@
-## What do you get when you cross a bee and a sheep? A bah-humbug.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
