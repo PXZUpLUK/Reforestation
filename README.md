@@ -1,1 +1,1 @@
-## What kind of music do planets listen to? Nep-tunes.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
