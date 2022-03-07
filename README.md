@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-## They're really good at it.
+## Remember, the best angle to approach a problem from is the "try" angle.
