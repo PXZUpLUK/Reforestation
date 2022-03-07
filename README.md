@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
