@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## What did the ocean say to the shore? Nothing, it just waved.
