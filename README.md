@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
