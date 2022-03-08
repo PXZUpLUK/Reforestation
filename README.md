@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
