@@ -1,1 +1,1 @@
-## People saying 'boo! to their friends has risen by 85% in the last year.... That's a frightening statistic.
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
