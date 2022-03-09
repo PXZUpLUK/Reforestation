@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
