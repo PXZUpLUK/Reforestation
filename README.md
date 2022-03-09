@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
