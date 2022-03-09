@@ -1,1 +1,3 @@
-## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
