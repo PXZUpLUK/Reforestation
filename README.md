@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
