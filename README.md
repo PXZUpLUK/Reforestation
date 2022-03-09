@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## What did one wall say to the other wall? I'll meet you at the corner!
