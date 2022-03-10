@@ -1,1 +1,3 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
