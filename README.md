@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-## They're really good at it.
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
