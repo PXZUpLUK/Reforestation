@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## Did you hear about the runner who was criticized? He just took it in stride
