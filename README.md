@@ -1,1 +1,1 @@
-## Why did the cookie cry? It was feeling crumby.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
