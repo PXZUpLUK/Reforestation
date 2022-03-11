@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## Have you ever heard of a music group called Cellophane? They mostly wrap.
