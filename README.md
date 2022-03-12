@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted.
+## What did the left eye say to the right eye? Between us, something smells!
