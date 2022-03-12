@@ -1,1 +1,1 @@
-## What is the hardest part about sky diving? The ground.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
