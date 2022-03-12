@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
