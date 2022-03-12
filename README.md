@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## How does a French skeleton say hello? Bone-jour.
