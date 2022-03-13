@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
