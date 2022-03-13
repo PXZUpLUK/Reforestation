@@ -1,1 +1,1 @@
-## Did you hear about the guy whose whole left side was cut off? He's all right now.
+## What did one wall say to the other wall? I'll meet you at the corner!
