@@ -1,1 +1,1 @@
-## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
