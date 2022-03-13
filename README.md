@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## It doesn't matter how much you push the envelope. It will still be stationary.
