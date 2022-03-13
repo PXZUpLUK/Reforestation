@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
