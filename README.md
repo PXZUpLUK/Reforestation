@@ -1,1 +1,1 @@
-## Why is Peter Pan always flying? Because he Neverlands.
+## Where do hamburgers go to dance? The meat-ball.
