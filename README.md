@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## Where do sheep go to get their hair cut? The baa-baa shop.
