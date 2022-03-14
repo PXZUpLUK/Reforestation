@@ -1,1 +1,1 @@
-## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
