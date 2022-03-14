@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
