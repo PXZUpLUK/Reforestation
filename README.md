@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
