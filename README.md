@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## Why didn’t the skeleton cross the road? Because he had no guts.
