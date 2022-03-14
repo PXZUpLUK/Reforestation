@@ -1,1 +1,1 @@
-## Why do choirs keep buckets handy? So they can carry their tune
+## You can't trust a ladder. It will always let you down
