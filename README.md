@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## Our wedding was so beautiful, even the cake was in tiers.
