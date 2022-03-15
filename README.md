@@ -1,1 +1,1 @@
-## What happens when you anger a brain surgeon? They will give you a piece of your mind.
+## Where do rabbits go after they get married? On a bunny-moon.
