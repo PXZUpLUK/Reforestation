@@ -1,1 +1,1 @@
-## What kind of music do planets listen to? Nep-tunes.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
