@@ -1,1 +1,1 @@
-## Why do choirs keep buckets handy? So they can carry their tune
+## What is a vampire's favorite fruit? A blood orange.
