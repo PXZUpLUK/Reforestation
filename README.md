@@ -1,1 +1,1 @@
-## Just read a few facts about frogs. They were ribbiting.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
