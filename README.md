@@ -1,1 +1,1 @@
-## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
