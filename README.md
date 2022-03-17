@@ -1,1 +1,1 @@
-## What do you call a group of disorganized cats? A cat-tastrophe.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
