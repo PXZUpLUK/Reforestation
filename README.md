@@ -1,1 +1,1 @@
-## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
