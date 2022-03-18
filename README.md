@@ -1,1 +1,1 @@
-## Why did Dracula lie in the wrong coffin? He made a grave mistake.
+## Why do pirates not know the alphabet? They always get stuck at "C".
