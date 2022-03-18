@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## I had a dream that I was a muffler last night. I woke up exhausted!
