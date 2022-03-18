@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
