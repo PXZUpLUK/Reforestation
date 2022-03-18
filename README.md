@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
