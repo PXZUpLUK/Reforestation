@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
