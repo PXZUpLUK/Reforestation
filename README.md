@@ -1,1 +1,1 @@
-## Why does it take longer to get from 1st to 2nd base, than it does to get from 2nd to 3rd base? Because there’s a Shortstop in between!
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
