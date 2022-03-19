@@ -1,1 +1,1 @@
-## I cut my finger chopping cheese, but I think that I may have grater problems.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
