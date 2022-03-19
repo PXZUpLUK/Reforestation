@@ -1,1 +1,1 @@
-## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
+## My first time using an elevator was an uplifting experience. The second time let me down.
