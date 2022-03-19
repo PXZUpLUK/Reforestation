@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
