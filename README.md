@@ -1,1 +1,1 @@
-## I used to be a banker, but I lost interest.
+## To the guy who invented zero... thanks for nothing.
