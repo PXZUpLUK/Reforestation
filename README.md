@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
