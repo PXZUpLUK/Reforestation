@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## What do you call an eagle who can play the piano? Talonted!
