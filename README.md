@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
