@@ -1,1 +1,1 @@
-## What did Michael Jackson name his denim store?    Billy Jeans!
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
