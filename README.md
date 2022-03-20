@@ -1,1 +1,1 @@
-## They're making a movie about clocks. It's about time
+## There's not really any training for garbagemen. They just pick things up as they go.
