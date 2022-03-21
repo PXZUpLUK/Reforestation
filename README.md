@@ -1,1 +1,1 @@
-## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
+## Why are mummys scared of vacation? They're afraid to unwind.
