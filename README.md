@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## I'd like to start a diet, but I've got too much on my plate right now.
