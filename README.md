@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
