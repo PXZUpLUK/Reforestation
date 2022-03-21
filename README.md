@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
