@@ -1,2 +1,1 @@
-## Some people say that I never got over my obsession with Phil Collins.
-## But take a look at me now.
+## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
