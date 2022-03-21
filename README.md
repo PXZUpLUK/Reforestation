@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
