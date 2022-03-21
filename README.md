@@ -1,1 +1,1 @@
-## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
+## What did the beaver say to the tree? It's been nice gnawing you.
