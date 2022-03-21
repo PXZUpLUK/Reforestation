@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## If at first you don't succeed, sky diving is not for you!
