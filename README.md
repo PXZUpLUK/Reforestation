@@ -1,1 +1,1 @@
-## My boss told me to attach two pieces of wood together... I totally nailed it!
+## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
