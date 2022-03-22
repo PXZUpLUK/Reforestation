@@ -1,1 +1,1 @@
-## Where does batman go to the bathroom? The batroom.
+## What animal is always at a game of cricket? A bat.
