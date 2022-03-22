@@ -1,1 +1,1 @@
-## What did the beaver say to the tree? It's been nice gnawing you.
+## How come the stadium got hot after the game? Because all of the fans left.
