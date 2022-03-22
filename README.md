@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
