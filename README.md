@@ -1,2 +1,1 @@
-## What's the difference between a seal and a sea lion?
-## An ion! 
+## I’ll tell you something about German sausages, they’re the wurst
