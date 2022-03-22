@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## The rotation of earth really makes my day.
