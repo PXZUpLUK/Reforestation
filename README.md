@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## I asked a frenchman if he played video games. He said "Wii"
