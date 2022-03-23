@@ -1,1 +1,1 @@
-## I used to work for a soft drink can crusher. It was soda pressing.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
