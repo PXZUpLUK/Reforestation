@@ -1,1 +1,1 @@
-## What do you call an Argentinian with a rubber toe? Roberto
+## Where did Captain Hook get his hook? From a second hand store.
