@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
