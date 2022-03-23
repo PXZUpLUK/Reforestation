@@ -1,1 +1,1 @@
-## Every night at 11:11, I make a wish that someone will come fix my broken clock.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
