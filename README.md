@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## I'm tired of following my dreams. I'm just going to ask them where they are going and meet up with them later.
