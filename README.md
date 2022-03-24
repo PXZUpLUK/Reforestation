@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
