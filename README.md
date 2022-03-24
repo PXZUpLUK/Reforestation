@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
