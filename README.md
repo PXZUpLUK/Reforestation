@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
