@@ -1,1 +1,1 @@
-## Want to hear my pizza joke? Never mind, it's too cheesy.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
