@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## Why are basketball players messy eaters? Because they are always dribbling.
