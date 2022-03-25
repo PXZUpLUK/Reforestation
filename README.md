@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## I was going to learn how to juggle, but I didn't have the balls.
