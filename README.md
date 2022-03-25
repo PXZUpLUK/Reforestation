@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## What kind of pants do ghosts wear? Boo jeans.
