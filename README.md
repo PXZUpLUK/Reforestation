@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## What does a clock do when it's hungry? It goes back four seconds!
