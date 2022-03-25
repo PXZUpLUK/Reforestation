@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
