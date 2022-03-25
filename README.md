@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## I had a dream that I was a muffler last night. I woke up exhausted!
