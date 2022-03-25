@@ -1,1 +1,1 @@
-## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
