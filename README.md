@@ -1,1 +1,1 @@
-## I had a dream that I was a muffler last night. I woke up exhausted!
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
