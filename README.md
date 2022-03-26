@@ -1,1 +1,1 @@
-## Why are basketball players messy eaters? Because they are always dribbling.
+## Why do choirs keep buckets handy? So they can carry their tune
