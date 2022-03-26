@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
