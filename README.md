@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## The rotation of earth really makes my day.
