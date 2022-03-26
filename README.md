@@ -1,1 +1,2 @@
-## What did one wall say to the other wall? I'll meet you at the corner!
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
