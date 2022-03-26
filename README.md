@@ -1,1 +1,1 @@
-## What do you call a fake noodle? An impasta.
+## Why do fish live in salt water? Because pepper makes them sneeze!
