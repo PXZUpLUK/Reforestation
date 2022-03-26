@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## The rotation of earth really makes my day.
