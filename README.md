@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
