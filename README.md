@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
