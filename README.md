@@ -1,1 +1,1 @@
-## Chances are if you' ve seen one shopping center, you've seen a mall.
+## How come a man driving a train got struck by lightning? He was a good conductor.
