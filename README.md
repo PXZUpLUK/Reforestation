@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## If at first you don't succeed, sky diving is not for you!
