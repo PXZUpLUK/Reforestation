@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
