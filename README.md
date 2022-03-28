@@ -1,1 +1,2 @@
-## What did one plate say to the other plate? Dinner is on me!
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
