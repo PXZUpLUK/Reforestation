@@ -1,1 +1,2 @@
-## What biscuit does a short person like? Shortbread. 
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
