@@ -1,1 +1,1 @@
-## I started a new business making yachts in my attic this year...the sails are going through the roof
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
