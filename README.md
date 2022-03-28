@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-## They're really good at it.
+## I started a new business making yachts in my attic this year...the sails are going through the roof
