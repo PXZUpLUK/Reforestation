@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## Have you heard of the band 1023MB? They haven't got a gig yet.
