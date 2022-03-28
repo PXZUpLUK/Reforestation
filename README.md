@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## What did one plate say to the other plate? Dinner is on me!
