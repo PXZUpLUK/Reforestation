@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
