@@ -1,1 +1,1 @@
-## Thanks for explaining the word "many" to me. It means a lot.
+## I wouldn't buy anything with velcro. It's a total rip-off.
