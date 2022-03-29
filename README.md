@@ -1,1 +1,2 @@
-## Why did the miner get fired from his job? He took it for granite...
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
