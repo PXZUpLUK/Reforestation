@@ -1,2 +1,1 @@
-## "Dad, I'm cold."
-## "Go stand in the corner, I hear it's 90 degrees."
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
