@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted
+## Thanks for explaining the word "many" to me. It means a lot.
