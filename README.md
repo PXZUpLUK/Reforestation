@@ -1,1 +1,2 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
