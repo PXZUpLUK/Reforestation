@@ -1,1 +1,1 @@
-## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
