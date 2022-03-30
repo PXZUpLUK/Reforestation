@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
