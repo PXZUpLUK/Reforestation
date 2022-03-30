@@ -1,1 +1,1 @@
-## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+## Whenever the cashier at the grocery store asks my dad if he would like the milk in a bag he replies, ‘No, just leave it in the carton!’
