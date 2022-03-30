@@ -1,1 +1,3 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## How many seconds are in a year?
+## 12.
+## January 2nd, February 2nd, March 2nd, April 2nd.... etc
