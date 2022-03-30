@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## When is a door not a door? When it's ajar.
