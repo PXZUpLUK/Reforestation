@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
