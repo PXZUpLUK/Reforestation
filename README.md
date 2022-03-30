@@ -1,1 +1,1 @@
-## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
