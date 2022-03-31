@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## What do prisoners use to call each other? Cell phones.
