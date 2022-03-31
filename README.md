@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
