@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
