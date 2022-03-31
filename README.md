@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
