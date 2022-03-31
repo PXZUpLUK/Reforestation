@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## What's black and white and read all over? The newspaper.
