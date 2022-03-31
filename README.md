@@ -1,1 +1,1 @@
-## Why do wizards clean their teeth three times a day? To prevent bat breath!
+## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
