@@ -1,1 +1,1 @@
-## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
