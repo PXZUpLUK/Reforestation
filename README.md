@@ -1,1 +1,1 @@
-## ‘Put the cat out’ … ‘I didn’t realize it was on fire
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
