@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## What do you call a magician who has lost their magic? Ian.
