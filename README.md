@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
