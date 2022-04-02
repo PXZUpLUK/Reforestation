@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## What do you call a monkey in a mine field? A babooooom!
