@@ -1,2 +1,1 @@
-## "Dad, I'm cold."
-## "Go stand in the corner, I hear it's 90 degrees."
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
