@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## Why do choirs keep buckets handy? So they can carry their tune
