@@ -1,1 +1,1 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
