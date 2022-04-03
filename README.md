@@ -1,1 +1,1 @@
-## What do you call a monkey in a mine field? A babooooom!
+## Don't tell secrets in corn fields. Too many ears around.
