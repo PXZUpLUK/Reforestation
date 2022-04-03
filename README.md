@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## What did the ocean say to the shore? Nothing, it just waved.
