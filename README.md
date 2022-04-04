@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
