@@ -1,1 +1,1 @@
-## What kind of magic do cows believe in? MOODOO.
+## Did you hear about the runner who was criticized? He just took it in stride
