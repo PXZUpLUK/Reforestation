@@ -1,1 +1,1 @@
-## My boss told me to attach two pieces of wood together... I totally nailed it!
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
