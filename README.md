@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## A Skeleton walked into a bar he said I need a beer and a mop
