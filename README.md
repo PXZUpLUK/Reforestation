@@ -1,1 +1,1 @@
-## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
+## I'd like to start a diet, but I've got too much on my plate right now.
