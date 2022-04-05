@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
