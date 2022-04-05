@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
