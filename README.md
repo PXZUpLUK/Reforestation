@@ -1,1 +1,3 @@
-## Why did the chicken get a penalty? For fowl play.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
