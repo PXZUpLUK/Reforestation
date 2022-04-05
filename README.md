@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## Sore throats are a pain in the neck!
