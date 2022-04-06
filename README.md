@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## Where do rabbits go after they get married? On a bunny-moon.
