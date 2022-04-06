@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## What did the ocean say to the beach? Thanks for all the sediment.
