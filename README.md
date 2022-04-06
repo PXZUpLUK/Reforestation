@@ -1,1 +1,1 @@
-## I went to a book store and asked the saleswoman where the Self Help section was, she said if she told me it would defeat the purpose.
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
