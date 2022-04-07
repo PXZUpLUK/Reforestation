@@ -1,1 +1,1 @@
-## "I'll call you later." Don't call me later, call me Dad.
+## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
