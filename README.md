@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
