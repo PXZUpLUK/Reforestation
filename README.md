@@ -1,1 +1,3 @@
-## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
