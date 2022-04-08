@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## When does a joke become a dad joke? When it becomes apparent.
