@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## Why did the octopus beat the shark in a fight? Because it was well armed.
