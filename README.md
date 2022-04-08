@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## Is the pool safe for diving? It deep ends.
