@@ -1,1 +1,1 @@
-## Coffee has a tough time at my house, every morning it gets mugged.
+## What do you get when you cross a bee and a sheep? A bah-humbug.
