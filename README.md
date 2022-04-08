@@ -1,1 +1,1 @@
-## I invented a new word! Plagiarism!
+## Why do cows wear bells? Because their horns don't work.
