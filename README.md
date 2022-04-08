@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## Why do choirs keep buckets handy? So they can carry their tune
