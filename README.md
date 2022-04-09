@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
