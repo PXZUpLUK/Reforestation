@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## Want to hear a joke about construction? Nah, I'm still working on it.
