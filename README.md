@@ -1,1 +1,1 @@
-## This is my step ladder. I never knew my real ladder.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
