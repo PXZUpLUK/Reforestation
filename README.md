@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
