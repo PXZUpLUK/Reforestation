@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
