@@ -1,1 +1,1 @@
-## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
+## Why do birds fly south for the winter? Because it's too far to walk.
