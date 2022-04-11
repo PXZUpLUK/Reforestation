@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## Why did the coffee file a police report? It got mugged.
