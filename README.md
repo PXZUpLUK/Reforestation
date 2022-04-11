@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## Why was it called the dark ages? Because of all the knights. 
