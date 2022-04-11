@@ -1,1 +1,1 @@
-## My first time using an elevator was an uplifting experience. The second time let me down.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
