@@ -1,1 +1,1 @@
-## Past, present, and future walked into a bar.... It was tense.
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
