@@ -1,1 +1,1 @@
-## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
