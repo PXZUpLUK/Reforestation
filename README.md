@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## Never take advice from electrons. They are always negative.
