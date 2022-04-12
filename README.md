@@ -1,1 +1,1 @@
-## I fear for the calendar, its days are numbered.
+## How do robots eat guacamole? With computer chips.
