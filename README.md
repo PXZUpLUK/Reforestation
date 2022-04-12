@@ -1,1 +1,1 @@
-## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
+## What do you call a crowd of chess players bragging about their wins in a hotel lobby? Chess nuts boasting in an open foyer.
